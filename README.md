@@ -68,7 +68,7 @@ Ahram Canadian University (ACU) — Grade: Good — 2025
 ## Languages
 
 - Arabic: Native
-- English: Good (B2)
+- English: Good 
 
 ---
 
