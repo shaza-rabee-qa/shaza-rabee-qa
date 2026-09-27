@@ -3,7 +3,7 @@
 Pharmacy Graduate | Junior Software Tester in progress
 6th of October City, Giza, Egypt
 shaza.rabee.2025@gmail.com
-LinkedIn: https://www.linkedin.com/in/shaza-rabee2025
+LinkedIn: https://www.linkedin.com/in/shaza-rabee
 
 ---
 
@@ -74,5 +74,5 @@ Ahram Canadian University (ACU) — Grade: Good — 2025
 
 ## Contact Me
 
-LinkedIn: https://www.linkedin.com/in/shaza-rabee2025
+LinkedIn: https://www.linkedin.com/in/shaza-rabee
 Email: shaza.rabee.2025@gmail.com
